@@ -1,2 +1,0 @@
-# Arush
-My self
